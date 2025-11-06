@@ -1,1 +1,3 @@
 Sinan Abi
+
+BIKTIM ARTIK YETER BE
